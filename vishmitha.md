@@ -1,1 +1,1 @@
-hi, everyone
+welcome, everyone
